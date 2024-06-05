@@ -1,0 +1,2 @@
+# frases-motivacionais
+grgggrggrr-ogkeri0gnioer0mgfkçgmtrpfm opj4w0ugerogyrthg1
